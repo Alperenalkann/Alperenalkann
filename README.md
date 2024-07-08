@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Alperenalkann
 - 👀 I’m interested in 🎾
 - 🌱 I’m currently learning  HTML5 learning 
-- 💞️ I’m looking to collaborate on with Ai companys 
+- 💞️ I’m looking to collaborate on with Ai company 
 - 📫 How to reach me instagram:Alperenn_alkan
 - 😄 Pronouns: Hard working 
 - ⚡ Fun fact: actually sometimes ı am  grumpy
